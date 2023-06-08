@@ -1,6 +1,6 @@
 # GsouCloud机场官网地址
 
-最新地址：[egsou.cloud](https://gsoust.xyz/auth/register?code=lTK2)
+最新地址：[egsou.cloud](https://gsoust.xyz/auth/register?code=xThc)
 
 ## 简介
 
