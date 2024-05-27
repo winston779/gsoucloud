@@ -1,6 +1,6 @@
 # GsouCloud机场官网地址
 
-最新地址：[gsourecommend.pics](https://gsourecommend.pics/auth/register?code=1iPLsZ)
+最新地址：[gsourecommend.pics](https://gsourecommend.pics/auth/register?code=qwQj0W)
 
 ## 简介
 
